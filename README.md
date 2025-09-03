@@ -1,2 +1,4 @@
-# kezz
-For him
+# harv
+I love you. The moment you texted me that day. The day I realized what i feels towards you, it's still the same as to day. I always love you. I love everything about you. I mean it. I cannot even unlove you even if i tried so hard. Even you disrespect me, i always find myself crawling back to you. You're always saying that i am just focusing on the negative side of our relationship, always the wrong doing that i always see. But if that's really the case, why I can't unlove you? why I'm still scared everytime you're not with me? Why do i still care so much?
+
+I'm scared. We're getting old. I feel like anytime, you're not there anymore. The schedule is hectic and i cannot even face you because i always wanted to cry of being upset of what will happen to us. I don't want to be negative always around you. I'm scared. I'm scared because the world is broad. What if you find someone after you meet a lot of people? I am really scared. 
